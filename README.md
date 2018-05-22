@@ -1,2 +1,0 @@
-# loanstatuspredictuyfdcgyciaslyflc
-jdv,gluaf
